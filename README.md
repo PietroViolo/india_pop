@@ -1,1 +1,1 @@
-![""](https://github.com/PietroViolo/india_pop/blob/main/Photoshop/India_most_populous_country.jpg)
+![""](https://github.com/PietroViolo/india_pop/blob/main/Photoshop/India_most_populousV2.jpg)
